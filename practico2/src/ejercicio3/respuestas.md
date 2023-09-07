@@ -1,0 +1,1 @@
+¿En que afecta el tamaño de la ciudad? 
